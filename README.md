@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Ashish Gupta.
+- 👀 I’m interested in Digital Marketing QnA.
+- 🌱 I’m currently learning "about the peak of Digital Marketing."
+- 💞️ I’m looking to collaborate on " Study on Digital Marketing."
+- 📫 You can reach me on ashishgupta.bhu09@gmail.com
